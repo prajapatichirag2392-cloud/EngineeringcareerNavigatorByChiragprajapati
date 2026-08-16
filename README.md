@@ -1,2 +1,0 @@
-# EngineeringcareerNavigatorByChiragprajapati
-EngineeringCareerNavigator
